@@ -1,1 +1,0 @@
-# sistemadegestion2019
